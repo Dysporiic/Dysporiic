@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dysporiic
+- 👋 Hi, I’m @Dysphoriic
 - 👀 I’m interested in ... Anime, Gaming, Coding
 - 🌱 I’m currently learning ... Computer Science
 - 💞️ I’m looking to collaborate on ...
